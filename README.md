@@ -1,1 +1,1 @@
-Life is short£¬ plz learn Python£¡
+ï»¿Life is shortï¼Œplz learn Pythonï¼
